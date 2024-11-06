@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on coding projects
-- 📫 How to reach me:  nikhliseb23@gmail.com
+- 📫 How to reach me:  nikhilseb23@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm left handed
 
